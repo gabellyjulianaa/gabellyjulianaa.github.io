@@ -1,1 +1,0 @@
-# gabellyjulianaa.github.io
